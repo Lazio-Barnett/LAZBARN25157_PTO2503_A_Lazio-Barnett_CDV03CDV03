@@ -10,7 +10,6 @@
 
 ## Supporting Files
 
--
 - Full CV (PDF): [Download](https://drive.google.com/file/d/1t3dqT25RYX-rXyoGkzSwY0HSeVWPF6D9/view?usp=sharing)
 
 ## Profiles
